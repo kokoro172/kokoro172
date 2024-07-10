@@ -5,7 +5,7 @@
 拉邦结派（主拉），wota艺初心者，宅舞一般爱好者
 崩崩/崩崩崩/原/粥/pjsk
 
-[B站](https://space.bilinili.com/345949823)
+[B站](https://space.bilibili.com/345949823)
 
 
 
